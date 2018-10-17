@@ -8,4 +8,4 @@ Die Serie besteht aus 3 Videos:
 
 Zusätzliche Informationen sind auf der Webseite [__Die Hobbyelektroniker - Community__](https://community.hobbyelektroniker.ch) zu finden.
 
-__Das Video und die Informationen auf der Webseite werden erst am 17:10.2018 um 20:00 zur Verfügung stehen!__
+__Das Video zu Teil 3 und die Informationen auf der Webseite werden erst am 17:10.2018 um 20:00 zur Verfügung stehen!__
